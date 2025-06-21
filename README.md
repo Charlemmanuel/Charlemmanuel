@@ -10,7 +10,7 @@ I'm diving deeper into Python, expanding my programming knowledge to include mor
 I'm eager to collaborate on web development projects or any innovative ideas that push the boundaries of technology.
 
 📫 How to Reach Me
-Feel free to connect with me at charlemmanuel1012@gmail.com.
+Feel free to connect with me at charlemdogoua@gmail.com.
 
 ⚡ Fun Fact
 I enjoy solitude—it’s where I find inspiration and creativity.
